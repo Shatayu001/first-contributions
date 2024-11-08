@@ -9557,5 +9557,6 @@ This is [Shallom Omamo] (https://github.com/graciewakir)
 - Hi, [VioletBenin](mailto:violetbenin@outlook.com) here! :) | Software Engineer | [📲 LinkedIn](https://www.linkedin.com/in/beining-xu-714475284/) | [📦 Github](https://github.com/violetbenin)
 - Hi, I'm Konglon
 - I'm [Wheval](https:://github.com/wheval) , just had to do this 😂✌
+- Heyyyoooo, I'm Shatayu Khante nice to meet you .. If you're reading this .. I would love to connect with you [LinkedIn](https://www.linkedin.com/in/shatayu-khante-74a081252/) and [GitHub](https://github.com/Shatayu001)
 - Hi I'm ARC!
 - Hi this is gc
